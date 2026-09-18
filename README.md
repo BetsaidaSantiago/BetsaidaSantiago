@@ -3,7 +3,7 @@
 ---
 About me:👨‍💻
 
-I am a first year student of the Bachelor of Science in Computer Science at UABJO.
+I am a senior—seventh semester—pursuing a Bachelor of Science in Computer Science at UABJO.
 
 ---
 
